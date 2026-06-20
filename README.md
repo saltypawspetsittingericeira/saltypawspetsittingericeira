@@ -40,5 +40,5 @@ Book trusted [dog walks in Ericeira](https://saltypaws.pt/) with Salty Paws Pet 
 - Portuguese page: https://saltypaws.pt/pt/
 - Google Business Profile: https://share.google/fAyaIczS6L5JLW0QT
 - Instagram: https://www.instagram.com/saltypawspetsittingericeira
-- Facebook: https://www.facebook.com/people/Salty-Paws-Pet-Sitting-Ericeira/61590757247156/
+- Facebook: https://www.facebook.com/people/Salty-Paws-Pet-Sitting-Ericeira
 - Phone: +351 910 544 380
